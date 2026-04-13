@@ -1,3 +1,3 @@
-do parctice
+do practice bro
 get hands dirty 
-be a pro
+to be a pro
